@@ -1,0 +1,25 @@
+Unknown 0:00
+And the cost will come down under during the next decade. So yeah, the
+
+Joscha Bach 0:03
+I think the question is going somewhere deeper, there is the big problem that we need to reorganize the way resources are allocated in society in a big way. For instance, as Ben points out, people replace most of the jobs in retail or all of them in the near term. Be will also play strivers, and so on, he will replace many, many jobs irrevocably. Unlike you, I hope that many of the jobs that have to do with interaction between people will not be done by robots, but can be done by people. Because we don't have enormous amount of people that don't have a lot of free time, and might enjoy interacting with each other and do the things that humans are best at. So especially things like education, nursing, and so on, don't need to be done by robots or automated software, they these are things where people can really interact with each other. But right now, these things don't make a lot of profit, which is why we have a shortage of labor in these areas. But generally, you have a labor surplus. And that's the issue. So right now, we don't have a societal acceptable way to reroute money into these jobs. Because this would mean public employment. If you want to make public employment, it means in some sense that the state has to generate money and has to take out money. Another point, it's not because the amount of money needs to be is finite, and you need to find out the ground otherwise, but you need to have some kind of balanced economy. So for instance, if lay inflation is a flat tax on portfolios, in some sense, if you manage to raise wages, together with inflation, you just melt down the portfolio's this is one way. But we haven't done this in the right way. And the worldwide economy is still in incredible imbalance and bound to blow up at some point that most people think this is one of the issues that we are facing in this issue is going to be dramatically aggravated with the fact that labor is no longer going to be the primary means of telling people how much bread they're going to have on that table. And it's not because of a shortage of bread, we can have more bread than yesterday, we can have better housing, better transportation, better infrastructure, better everything, the only to have find a decent way to distribute this among people.
+
+Unknown 2:09
+Yeah, I mean, the one possible outcome is there's like 1000, really rich people, probably mostly white guys from the west and the few rich Chinese guys, these 1000 Rich people own a bunch of robot factories that mined raw materials and make them luxury goods and delivered to them by drones, then everyone else is shut out of that economy, then the Africans are the only ones who survive because they still remember how to do subsistence farming. I mean, that's to the extreme. But that is sort of one direction the world economy gradually seems to be going in, but actually very
+
+Joscha Bach 2:48
+unlikely. Of course, of course, there's going to be another secondary economy, there's going to be riots and so on, I don't think this is going to happen,
+
+Unknown 2:56
+probably very unrealistic. Something else will something else will intervene along the way. But but for that not to happen. radical changes to the economy in society and government policy will have to occur,
+
+Joscha Bach 3:11
+yes, I'm very straightforward changes, one very straightforward changes to have massive increase in public employment.
+
+Unknown 3:17
+So who gives universal basic income to the Central African Republic,
+
+Joscha Bach 3:21
+I'm not sure if universal basic income is the right solution in general, because right now, labor also has another function integrate society. And there is a very big danger of right now already in the US the society is disintegrating along many fault lines, people have the impression that they are no longer part of the same food chain. And it's it's very dangerous. Because ultimately, it means war. It means my kids should be fed, your kids cannot be fed, you are in conflict, it might get before my kids are going to die, yours are going to die and make sure of that. This is a situation that you don't want to have. So when you see people until a lot of us running around and yelling, the Jews will not replace us. What they express is they have the impression they are being replaced, they can no longer feed their kids. And you can say that they're despicable and so on. But if you look at the world through their eyes, and they might be most modeling the world they certainly are. That's their impression, and it's a very dangerous impression to have. And we need to make sure that this doesn't happen. And if he will pay can pay people to be good members of society, for being teachers, students, artists, cooks, whatever people like to do with each other. That is actually a very good thing. Another point to bring out is winning
+
+This transcript was generated by https://otter.ai
