@@ -1,3 +1,7 @@
+---
+source:: https://www.youtube.com/watch?v=uc112kET-i0
+---
+
 Unknown 0:01
 And we have your Shabak with us. And he's going to be speaking about AGI and agency. Okay, so agency in the age of machines, and you're sure it's a PhD. He's an AI researcher, who's worked and published about cognitive architectures for quite some time now mental representation, emotion, social modeling, and multi agent systems. And he's taught computer science, AI and cognitive science at Humboldt University of Berlin and the Institute of cognitive science at odds in the book. And he's got a book out, which has been around for a while now. It's called Principles of synthetic intelligence. Yes. So I won't belabor the bio, I think, are you working at Intel Labs? At the moment? Is that correct? Yes, that is current. Cool. All right. Yes, Your show is working at Intel Labs. There we go. Thanks so much for joining us. It's great to have you here. It's been a real pleasure to listen to previous talks as yours and interview in the past as well. So I'm, I'm I can tell everybody you're in for a real treat. Yes, so the talk title is agency in the age of machines. And I'll hand you over to your show.
 
